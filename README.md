@@ -1,3 +1,5 @@
+# Please add me as an Agent Developer [Published] on Discord, my discord username is tiredgirl#0127
+
 # Large TX FEE
 
 ## Description
